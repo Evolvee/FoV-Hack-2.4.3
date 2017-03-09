@@ -1,3 +1,19 @@
+
+
+
+---------------
+
+DO NOT USE ON NETHERWING 2.4.3 - ATLANTISS PROJECT,    WARDEN DETECTS THIS -- YOU WILL BE PERMA-BANNED
+DO NOT USE ON NETHERWING 2.4.3 - ATLANTISS PROJECT,    WARDEN DETECTS THIS -- YOU WILL BE PERMA-BANNED
+DO NOT USE ON NETHERWING 2.4.3 - ATLANTISS PROJECT,    WARDEN DETECTS THIS -- YOU WILL BE PERMA-BANNED
+DO NOT USE ON NETHERWING 2.4.3 - ATLANTISS PROJECT,    WARDEN DETECTS THIS -- YOU WILL BE PERMA-BANNED
+
+---------------
+
+
+
+
+
 World of Warcraft The Burning Crusade client 2.4.3 FoV changing hack
 
 Originally written by para_ at http://www.ownedcore.com/forums/world-of-warcraft/world-of-warcraft-bots-programs/wow-memory-editing/396751-fov-wow-2.html#post2718340
